@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mattnificent-star
-- 👀 I’m interested in learning how to be a web designer, web developer and so much more involving websites abd coding
+- 👀 I’m interested in learning how to be a web designer, web developer and so much more involving websites and coding
 - 🌱 I’m currently learning javascript and looking forward to learn pyton and C++.
 - 💞️ I’m looking to collaborate on any projects that'll aid in my learning . 
 - 📫 How to reach me , you can reach me on email @ matthewfavour50@gmail.com or whatsapp @ +2348077992649
